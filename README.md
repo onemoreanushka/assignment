@@ -1,2 +1,2 @@
-Assignmentr 1
+Assignment 1
 Anushka Jha
